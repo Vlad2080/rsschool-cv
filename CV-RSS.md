@@ -1,29 +1,31 @@
-﻿Contact[ ](mailto:vladvv2001@gmail.com)Vlad Vitkovskiy ![](Aspose.Words.e31e71c4-003b-4711-88ff-2451d0dec05c.001.png)<vladvv2001@gmail.com>
+**Vlad Vitkovskiy**   
 
-[www.linkedin.com/in/vvitkovskiy](https://www.linkedin.com/in/vvitkovskiy?jobid=1234&lipi=urn%3Ali%3Apage%3Ad_jobs_easyapply_pdfgenresume%3BkDBJF5P5RF%2B3OS5u1bMCXQ%3D%3D&licu=urn%3Ali%3Acontrol%3Ad_jobs_easyapply_pdfgenresume-v02_profile)  **Summary [**(LinkedIn)](https://www.linkedin.com/in/vvitkovskiy?jobid=1234&lipi=urn%3Ali%3Apage%3Ad_jobs_easyapply_pdfgenresume%3BkDBJF5P5RF%2B3OS5u1bMCXQ%3D%3D&licu=urn%3Ali%3Acontrol%3Ad_jobs_easyapply_pdfgenresume-v02_profile)**
+<vladvv2001@gmail.com>
+
+[www.linkedin.com/in/vvitkovskiy](https://www.linkedin.com/in/vvitkovskiy?jobid=1234&lipi=urn%3Ali%3Apage%3Ad_jobs_easyapply_pdfgenresume%3BkDBJF5P5RF%2B3OS5u1bMCXQ%3D%3D&licu=urn%3Ali%3Acontrol%3Ad_jobs_easyapply_pdfgenresume-v02_profile)    
+
+**Summary** 
+
 
 I can assure client satisfaction in the quality of work I deliver and I'm eager Top Skills to build long-term relationships with my clients.
 
-Export
+**Professional experience:**
 
-International Trade
-
-Import **Professional experience:**
-
-- Data Mining and Web Research/Business Development/Marketing 
-
-Languages research - over 9 years of experience
+- Data Mining and Web Research/Business Development/Marketing research - over 9 years of experience
 
 - Data Analysis/Business Reporting - over 7 years of experience 
 
-English (Professional Working) 
-
-Ukrainian (Native or ￿Bilingual) 
 
 **IT Skills:**
 
-Russian (Native or Bilingual) • Bacis HTML, CSS, JS. 
+• Bacis HTML, CSS, JS.   
 
+**Languages:** 
+English (Fluent) 
+Ukrainian, Russian (Native or Bilingual) 
+
+  
+  
 **Experience**
 
 **UpWork**
@@ -50,7 +52,7 @@ Senior Export Sales / Business Development Manager December 2007 - March 2014
 
 May 2007 - November 2007
 
-**Step by Step ![](Aspose.Words.e31e71c4-003b-4711-88ff-2451d0dec05c.002.png)**
+**Step by Step**
 
 International Sales/Business Development Manager November 2005 - May 2007 
 
@@ -75,4 +77,4 @@ Master’s Degree, Business Administration and Management  (1997 - 2002)
 12.2000 CEP Course in Economic History in English, Certificate of Completion, Kharkov, Ukraine.
 
 04.1998 First place in Student Olympiad on Financial Mathematics, Kharkov, Ukraine.
-Page PAGE2 of NUMPAGES2
+
