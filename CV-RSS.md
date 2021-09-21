@@ -53,10 +53,9 @@ May 2007 - November 2007
 International Sales/Business Development Manager    
 November 2005 - May 2007 
 
-**Parkside International Hotel**    
+**Parkside International Hotel, England**    
 Assistant Hotel Manager    
-September    
-2004 - September 2005
+September 2004 - September 2005
 
 **Print LTD**    
 Regional Sales Manager    
