@@ -1,7 +1,9 @@
 # Vlad Vitkovskiy
-![my photo](https://media-exp1.licdn.com/dms/image/C4D03AQE50V3ygNotMA/profile-displayphoto-shrink_200_200/0/1516497552035?e=1637798400&v=beta&t=Z9hhPYrNTRj-Uz5eEl9r_LUYfmCtoR71KWPHh-dLYXU "My photo")
+![my photo](https://media-exp1.licdn.com/dms/image/C4D03AQE50V3ygNotMA/profile-displayphoto-shrink_200_200/0/1516497552035?e=1637798400&v=beta&t=Z9hhPYrNTRj-Uz5eEl9r_LUYfmCtoR71KWPHh-dLYXU "My photo")    
+
 
 [www.linkedin.com/in/vvitkovskiy](https://www.linkedin.com/in/vvitkovskiy?jobid=1234&lipi=urn%3Ali%3Apage%3Ad_jobs_easyapply_pdfgenresume%3BkDBJF5P5RF%2B3OS5u1bMCXQ%3D%3D&licu=urn%3Ali%3Acontrol%3Ad_jobs_easyapply_pdfgenresume-v02_profile)    
+<vladvv2001@gmail.com>
 
 ## Summary    
 I can assure client satisfaction in the quality of work I deliver and I'm eager to build long-term relationships with my clients.
