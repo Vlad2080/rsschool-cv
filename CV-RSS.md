@@ -1,6 +1,5 @@
 # Vlad Vitkovskiy
-
-<vladvv2001@gmail.com>
+! []<https://media-exp1.licdn.com/dms/image/C4D03AQE50V3ygNotMA/profile-displayphoto-shrink_200_200/0/1516497552035?e=1637798400&v=beta&t=Z9hhPYrNTRj-Uz5eEl9r_LUYfmCtoR71KWPHh-dLYXU>
 
 [www.linkedin.com/in/vvitkovskiy](https://www.linkedin.com/in/vvitkovskiy?jobid=1234&lipi=urn%3Ali%3Apage%3Ad_jobs_easyapply_pdfgenresume%3BkDBJF5P5RF%2B3OS5u1bMCXQ%3D%3D&licu=urn%3Ali%3Acontrol%3Ad_jobs_easyapply_pdfgenresume-v02_profile)    
 
