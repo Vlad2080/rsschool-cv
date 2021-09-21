@@ -1,0 +1,78 @@
+﻿Contact[ ](mailto:vladvv2001@gmail.com)Vlad Vitkovskiy ![](Aspose.Words.e31e71c4-003b-4711-88ff-2451d0dec05c.001.png)<vladvv2001@gmail.com>
+
+[www.linkedin.com/in/vvitkovskiy](https://www.linkedin.com/in/vvitkovskiy?jobid=1234&lipi=urn%3Ali%3Apage%3Ad_jobs_easyapply_pdfgenresume%3BkDBJF5P5RF%2B3OS5u1bMCXQ%3D%3D&licu=urn%3Ali%3Acontrol%3Ad_jobs_easyapply_pdfgenresume-v02_profile)  **Summary [**(LinkedIn)](https://www.linkedin.com/in/vvitkovskiy?jobid=1234&lipi=urn%3Ali%3Apage%3Ad_jobs_easyapply_pdfgenresume%3BkDBJF5P5RF%2B3OS5u1bMCXQ%3D%3D&licu=urn%3Ali%3Acontrol%3Ad_jobs_easyapply_pdfgenresume-v02_profile)**
+
+I can assure client satisfaction in the quality of work I deliver and I'm eager Top Skills to build long-term relationships with my clients.
+
+Export
+
+International Trade
+
+Import **Professional experience:**
+
+- Data Mining and Web Research/Business Development/Marketing 
+
+Languages research - over 9 years of experience
+
+- Data Analysis/Business Reporting - over 7 years of experience 
+
+English (Professional Working) 
+
+Ukrainian (Native or ￿Bilingual) 
+
+**IT Skills:**
+
+Russian (Native or Bilingual) • Bacis HTML, CSS, JS. 
+
+**Experience**
+
+**UpWork**
+
+Data Quality Analyst May 2018 - Present 
+
+**UpWork**
+
+Operations Generalist / Customer Support Specialist November 2016 - Present 
+
+**Svitla Systems, Inc.**
+
+Business Development Manager October 2015 - October 2016 
+
+**Retail shop and e-shop** Private Entrepreneur
+
+April 2014 - September 2015
+
+**Tiwell Assistant**
+
+Senior Export Sales / Business Development Manager December 2007 - March 2014
+
+**METRO Cash & Carry Ukraine** Key Account Manager 
+
+May 2007 - November 2007
+
+**Step by Step ![](Aspose.Words.e31e71c4-003b-4711-88ff-2451d0dec05c.002.png)**
+
+International Sales/Business Development Manager November 2005 - May 2007 
+
+**Parkside International Hotel** Assistant Hotel Manager September 2004 - September 2005
+
+**Print LTD** 
+
+Regional Sales Manager September 2003 - August 2004 
+
+**HAWA DISTRIBUTION** Marketing Manager August 2002 - August 2003
+
+**Education**
+
+Karazin National University
+
+Master’s Degree, Business Administration and Management  (1997 - 2002)
+
+03.2003 TOEFL certificate, PBT, grade: 540.
+
+04.2001 International Student Conference: “Unity in Diversity”, the Netherlands.
+
+12.2000 CEP Course in Economic History in English, Certificate of Completion, Kharkov, Ukraine.
+
+04.1998 First place in Student Olympiad on Financial Mathematics, Kharkov, Ukraine.
+Page PAGE2 of NUMPAGES2
