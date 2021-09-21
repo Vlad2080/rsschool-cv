@@ -53,16 +53,17 @@ International Sales/Business Development Manager
 November 2005 - May 2007 
 
 **Parkside International Hotel**    
-Assistant Hotel Manager September    
+Assistant Hotel Manager    
+September    
 2004 - September 2005
 
 **Print LTD**    
-Regional Sales Manager September    
-2003 - August 2004 
+Regional Sales Manager    
+September 2003 - August 2004 
 
 **HAWA DISTRIBUTION**       
-Marketing Manager August    
-2002 - August 2003
+Marketing Manager    
+August 2002 - August 2003
 
 ### Education      
 
