@@ -15,7 +15,7 @@ I can assure client satisfaction in the quality of work I deliver and I'm eager 
 
 #### IT Skills:
 
-• Bacis HTML, CSS, JS   
+• HTML, CSS, JS, React
 
 #### Languages:
 • English (Fluent)     
